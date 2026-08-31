@@ -1,7 +1,10 @@
-👩🏻‍💻 𝙈𝙖𝙧𝙘𝙚𝙡𝙖 𝙆𝙡𝙚𝙞𝙣
+────────────────────𖤐.˖🛸─────────────────────── ࣪
 
-Me chamo Marcela Richel Gonzalez Klein, tenho 16 anos e sou natural de Santa Catarina.
+𝘮𝘢𝘳𝘤𝘦𝘭𝘢 𝘨𝘰𝘯𝘻𝘢́𝘭𝘦𝘻
 
---> Atualmente estou no Entra21
+--> aluna do Entra21 20°Edição
+
+♯ 16 anos
+♯ sc | bnu
 
  
